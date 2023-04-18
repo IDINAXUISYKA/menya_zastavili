@@ -1,1 +1,0 @@
-# menya_zastavili
